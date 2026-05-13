@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Polymarket plugin with ultimate Polymarket Plugin | stop-loss-management + trailing-stops. Featuring stop-loss-management and trailing-stops, it's the best choice
 
 
 
